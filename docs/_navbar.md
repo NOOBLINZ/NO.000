@@ -1,1 +1,1 @@
-[github](https://github.com/NOOBLINZ/NO.000)
+[my github](https://github.com/NOOBLINZ/NO.000)
